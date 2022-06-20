@@ -6,3 +6,4 @@ My research is about the fashion magazine and sns in China and I am still trying
 I am glad to study here cause Sapporo is a beautiful and comfortable city for me to live.
 
 Anyway,nice to meet you:)
+Anyway,Nice to meet you:)
